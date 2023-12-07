@@ -1,0 +1,5 @@
+- 👋 Olá, sou João Paulo Ferreira
+- 👀 I’m from Brazil🇧🇷🇧🇷🇧🇷
+- 🌱Actual Learning Systems and Analysis Development😊😁😁
+- 💞️ contacte-me no E-mail/Contact me at email joao44567@hotmail.com
+- 🦊Pronoun = He,his 🤓
