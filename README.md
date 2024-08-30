@@ -1,5 +1,6 @@
 - 👋 Olá, sou João Paulo Ferreira
 - 👀 I’m from Brazil🇧🇷🇧🇷🇧🇷
-- 🌱Actual Learning Systems and Analysis Development😊😁😁
-- 💞️ contacte-me no E-mail/Contact me at email joao44567@hotmail.com
+- 🌱Actual Learning Systems and Analysis Development😊😁😁 in FATEC Cruzeiro
+- My passions are/Minhas paixões são: Web programation, backEnd and frontEnd
+- 💞️ Contact me at email/contacte-me no E-mail joao445671@gmail.com
 - 🦊Pronoun = He,his 🤓
