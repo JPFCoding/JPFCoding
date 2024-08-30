@@ -3,4 +3,4 @@
 - 🌱Actual Learning Systems and Analysis Development😊😁😁 in FATEC Cruzeiro
 - My passions are/Minhas paixões são: Web programation, backEnd and frontEnd
 - 💞️ Contact me at email/contacte-me no E-mail joao445671@gmail.com
-- 🦊Pronoun = He,his 🤓
+- 🦊Pronoun = He,his/ Eu, eu, eu e eu! 🤓
